@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **marhaan642@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1OpD-_58v04lnpTC885QiE7VpHS-tJFVk/view?usp=drive_link](https://drive.google.com/file/d/1OpD-_58v04lnpTC885QiE7VpHS-tJFVk/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/142PwHRMOFakqS6d-U8nj5WLW4nCKlGy1/view?usp=sharing_link](https://drive.google.com/file/d/142PwHRMOFakqS6d-U8nj5WLW4nCKlGy1/view?usp=sharing_link)
 
 - ⚡ Fun fact **I like watching Anime 0_0**
 
