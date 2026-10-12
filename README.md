@@ -11,7 +11,7 @@
 
 - 🤝 I’m looking for help with **AI/ML**
 
-- 💬 Ask me about **React, NodeJs, Python, DBMS, REST**
+- 💬 Ask me about **AI/ML, React, NodeJs, Python, DBMS, REST**
 
 - 📫 How to reach me **marhaan642@gmail.com**
 
