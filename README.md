@@ -5,7 +5,7 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=arhaan10s" alt="arhaan10s" /></a> </p>
 
-- 🌱 I’m currently learning **AI/ML, LLM**
+- 🌱 I’m currently Working on **AI/ML, LLM**
 
 - 👯 I’m looking to collaborate on **Full Stack Projects**
 
